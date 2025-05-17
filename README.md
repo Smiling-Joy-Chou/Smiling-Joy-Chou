@@ -1,5 +1,5 @@
 - Smiling-Joy-Chou Desu. You can call me Tano.
-- Now still busy with my study time. Not update frequently.
+- Just graduated. Free in some time...
 - Sometimes work on my individual site to post something. But also not that often.
 - Mainly program with Javascript, Python, Golang now.
 - Mail is OK if contact. Or DM at X be OK, too.
